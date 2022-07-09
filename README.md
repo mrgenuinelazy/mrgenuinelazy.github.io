@@ -1,1 +1,0 @@
-# mrgenuinelazy.github.io
